@@ -37,11 +37,11 @@ To Semanifest is to consciously define the semantic trajectory of becoming befor
 
 ## Core Thesis
 
-> Most humans are taught and told the direction of the future paths based on correlations from the past. From a young age, western culture and societal "norms" indonctrinated population on what to observe, and how to observe it.
+> Most humans are taught and told the direction of the future paths based on correlations from the past. From a young age, western culture and societal "norms" indoctrinated population on what to observe, and how to observe it.
 >
 > Semanifesting breaks the past present architecture and drives future state through present state intentional word meaning value construction "pre-destined semanifest".
 
-Destiny doesn't create the definition, you have to power to define and own future state destiny.
+Destiny doesn't create the definition, you have the power to define and own future state destiny.
 
 ---
 
